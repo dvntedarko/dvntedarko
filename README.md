@@ -13,5 +13,5 @@ thats about it. i dont really have a dni just the basic stuff. dont be a freak a
 <b> my favs include:</b> half-life, metal gear solid, devil may cry, yakuza. if i see you i WILL run up to you</p>
 <p align ="center"><img src="https://i.imgur.com/lL05xAZ.png"></center></p>
 
-<p align="center"><img src="https://i.imgur.com/cyVtde6.jpg" width="400">
+<p align="center"><img src="https://i.imgur.com/2HAsZWn.jpg" width="400">
 
