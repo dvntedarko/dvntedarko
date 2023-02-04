@@ -1,17 +1,18 @@
 
-<p align="center"><img src="https://user-images.githubusercontent.com/101271757/212568574-9fea0e88-cda9-491a-8d74-13c16639edaf.gif" width="500"><br> 
-<br></p>
 
-<h3 align="center"><img align="left" src="https://i.imgur.com/1Njkkp0.gif" width="300">DANTE/DONNIE/SNAKE - 18 - THEY/IT - LESBIAN</h3>
-<p align="center">everyone's favorite little schizo creature. handler of tbh pliskin. <br>
- i delete and remake ponies A LOT so.....<br>
-im cool with all gendered terms. you can just call me by whatever character im playing as too. </br>
-i hide freely. it's probably not personal<br>
-i don't really use tone tags unless i personally feel it's needed. i'm often wrong on that. don't feel bad asking for clarification<br>
-if we're green names i'm always open to talk (whisper me for my discord!), or just feel free to sit next to me and chill<br>
-thats about it. i dont really have a dni just the basic stuff. dont be a freak and we'll probably get along<br>
-<b> my favs include:</b> half-life, metal gear solid, devil may cry, yakuza. if i see you i WILL run up to you</p>
-<p align ="center"><img src="https://i.imgur.com/lL05xAZ.png"></center></p>
+<h4 align="center"><img src="https://user-images.githubusercontent.com/101271757/216730551-f265a31f-6ea7-4cdd-bf9c-9150119145e7.gif" width="500"></br>dante/donnie/snake - 18 - they/it lesbian</h4></br>
 
-<p align="center"><img src="https://i.imgur.com/2HAsZWn.jpg" width="400">
+<p align="center"> <img align="left" src="https://images.launchbox-app.com/abf6c48d-4408-4e90-bd53-69117fa0add7.png" width="250"> <img align="right" src="https://user-images.githubusercontent.com/101271757/216745970-7be5cb96-4447-4ba8-a9e3-b6ecf61b03ba.png" width="270">everyone's fav little schizo. <br>
+kind of a moody edgelord sometimes<br>
+ok with any gendered terms & nicknames<br>
+i like films, tech, and video games<br>
+i make gmod maps in my spare time<br>
+if we're green names feel free to come up and sit w me <br>
+(whisp me for discord as well)<br>
+i only occasionally run up to skins of things i like if idk you. youll have to interact me first but promise im worth it <br>
+i hide liberally, no specific dni just the regular stuff. dont be a freak and we'll get along<br>
+thats about it thanks for reading</p>
+
+<p align="center"><img src="https://i.imgur.com/2HAsZWn.jpg" width="400"></p>
+
 
