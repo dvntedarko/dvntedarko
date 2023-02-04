@@ -10,7 +10,7 @@ i make gmod maps in my spare time<br>
 if we're green names feel free to come up and sit w me <br>
 (whisp me for discord as well)<br>
 i only occasionally run up to skins of things i like if idk you. youll have to interact me first but promise im worth it <br>
-no specific dni just the regular stuff. dont be a freak and we'll get along<br>
+<br>no specific dni just the regular stuff. dont be a freak and we'll get along<br>
 thats about it thanks for reading</p>
 
 <p align="center"><img src="https://i.imgur.com/2HAsZWn.jpg" width="400"></p>
